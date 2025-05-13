@@ -1,3 +1,9 @@
+## 《爱的证明：下一个人类文明的共识》
+
+——治理新文明的伦理涅槃
+
+目 录
+
 ## 富爱文明宣言（Declaration of Proof-of-Love Civilization）
 
 [https://daism.io/zh/communities/enki/a7956b61a1f043a790d7752f0f10aeb0](https://daism.io/zh/communities/enki/a7956b61a1f043a790d7752f0f10aeb0)

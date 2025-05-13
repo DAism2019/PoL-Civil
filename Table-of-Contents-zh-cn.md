@@ -2,7 +2,11 @@
 
 ——治理新文明的伦理涅槃
 
-目 录
+---
+
+## 目 录
+
+---
 
 ## 富爱文明宣言（Declaration of Proof-of-Love Civilization）
 
